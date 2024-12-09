@@ -1,4 +1,4 @@
-## Hi All 😊 It's me SivasankariKannan
+## Hi There,😊 This is SivasankariKannan
 
 - 🔭 Here's my [CV](https://sivasankari-kannan-cv.tiiny.site/)
 - 👋 Hi, I’m @SivasankariKannan
